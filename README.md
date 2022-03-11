@@ -1,1 +1,0 @@
-# ncvc-yamamoto.github.io
